@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @marcellasilcam
+- 👀 I’m interested in learning and exploring new things!
+- 🌱 I’m currently studying Computer Science in Universidade Federal de Ouro Preto
+- 💞 I’m looking to collaborate on programming projects
+- 📫 How to reach me on Instagram: @marcellasilcam_
